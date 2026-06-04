@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg Script no-ban offers the most advanced break a brainrot egg Script, with no clip and undetectable. Perfect for dominating any
 
 
 
